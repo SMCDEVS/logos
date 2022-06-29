@@ -28,7 +28,7 @@ Please add your requests in the issues preferably with links to the vector or pn
 ---
 
 <details>
-  <summary><b><strike>SMC떡잎마을방범대</strike></b></summary>
+  <summary><b><strike>SMC떡잎마을방범대😅</strike></b></summary>
   
   <img src="https://user-images.githubusercontent.com/89503906/176481149-ac347dfe-d915-4fde-a228-82d51231a97f.png">
   
